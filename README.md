@@ -3,4 +3,6 @@ consider regarding some of my work on the russian language and alphabet at the f
 
 https://docs.google.com/document/d/13mIq3bT9gcSAMaikLG0QmqBW3l8dlU8OqE8EbSacOiE
 
-A more shareable link: tinyurl.com/russian-monomorphemes
+To share the same link:
+
+https://tinyurl.com/russian-monomorphemes
