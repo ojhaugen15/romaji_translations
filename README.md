@@ -7,7 +7,7 @@ To share the same link:
 
 https://tinyurl.com/russian-monomorphemes
 
-And some similarly-spirited ideas about hungarian:
+And some ideas of a similar spirit about hungarian:
 
 https://docs.google.com/document/d/1UX2b6u_RL-wOAheu8jZDWmNszPg8PxQNOhilcFezWKA
 
