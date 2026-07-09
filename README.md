@@ -14,3 +14,7 @@ https://docs.google.com/document/d/1UX2b6u_RL-wOAheu8jZDWmNszPg8PxQNOhilcFezWKA
 To share: 
 
 https://tinyurl.com/hungarian-phonemes-corrected
+
+And my original translations of great german writings:
+
+https://medium.com/@ojhaugen15/my-semi-weekly-paragraph-by-paragraph-translations-of-several-important-german-works-8f81278c8f2a
