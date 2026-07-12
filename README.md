@@ -15,7 +15,7 @@ To share:
 
 https://tinyurl.com/hungarian-phonemes-corrected
 
-And my original translations of great german and french writings:
+And fascimiles of my original translations of great german and french writings:
 
 https://medium.com/@ojhaugen15
 
