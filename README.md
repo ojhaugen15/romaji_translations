@@ -20,3 +20,5 @@ And fascimiles of my original translations of great german and french writings:
 https://medium.com/@ojhaugen15
 
 https://lingoduo.substack.com
+
+(The latter link includes some of my latin work, which for the time being is only hosted there.)
