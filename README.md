@@ -15,10 +15,10 @@ To share:
 
 https://tinyurl.com/hungarian-phonemes-corrected
 
-And fascimiles of my original translations of great german and french writings:
+And fascimiles of my original translations of great german, french, and russian writings:
 
 https://medium.com/@ojhaugen15
 
 https://lingoduo.substack.com
 
-(The latter link includes some of my work on other languages.)
+(The latter link includes some of my work on other languages as well.)
