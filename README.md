@@ -21,4 +21,4 @@ https://medium.com/@ojhaugen15
 
 https://lingoduo.substack.com
 
-(The latter link includes some of my work on other languages as well.)
+(The latter link includes some of my work on other languages as well, including japanese with the japanese hira.)
