@@ -15,10 +15,12 @@ To share:
 
 https://tinyurl.com/hungarian-phonemes-corrected
 
-And fascimiles of my original translations of great german, french, and russian writings:
+My current main blogging platform for my serial translations:
+
+https://lingoduo.blogspot.com
+
+And two semi-fascimiles:
 
 https://medium.com/@ojhaugen15
 
 https://lingoduo.substack.com
-
-(The latter link includes some of my work on other languages as well, including japanese with the japanese hira.)
